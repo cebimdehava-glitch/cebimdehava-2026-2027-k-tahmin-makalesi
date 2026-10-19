@@ -1,0 +1,1 @@
+# cebimdehava-2026-2027-k-tahmin-makalesi
